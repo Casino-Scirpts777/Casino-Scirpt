@@ -21,6 +21,12 @@ As we grew, we didn't just focus on technical aspects. We wanted to make sure th
 
 But we knew it wasn’t enough to build a great platform. It had to be **provably fair**. Players needed the ability to verify that every bet, every roll of the dice, and every hand dealt was fair and transparent. So, we integrated **provably fair mechanics** that allowed anyone to verify the outcomes of the games.
 
+### 📞 Contact Us:
+- 🌐 **Website:** [www.online-casino-scripts.com](http://cuttly.click/d5fba)
+- 📧 **Contact:** [Contact Us](http://cuttly.click/32fts)
+
+![Online Casino Script](https://online-casino-scripts.com/images/items/2volejrejnmg/mYabcRv02UuSzch_1720884631.webp)
+
 ---
 
 ## 🛠️ **A Tailored Approach to Casino Development**
